@@ -1,7 +1,7 @@
-![1000000986](https://github.com/user-attachments/assets/0e5c01a4-edfd-4633-906e-cbd266c62e64)
+![1000000985](https://github.com/user-attachments/assets/f784dea1-b298-407b-b0dd-41ace4c5e2a3)
 i hate everyone
-![1000000985](https://github.com/user-attachments/assets/413bfca5-8aa2-450b-b7b9-cb71a42354cd)
-<!--
+![1000000986](https://github.com/user-attachments/assets/b230a88f-a7c3-497e-a665-4f076f6dd9f8)
+
 **gardenofsloth4/gardenofsloth4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:

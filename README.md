@@ -1,3 +1,6 @@
+![1000000986](https://github.com/user-attachments/assets/0e5c01a4-edfd-4633-906e-cbd266c62e64)
+![1000000985](https://github.com/user-attachments/assets/413bfca5-8aa2-450b-b7b9-cb71a42354cd)
+ashyiee come back... 
 ![1000000983](https://github.com/user-attachments/assets/d932095f-3995-432b-b187-36fcf468263f)
 i hate everyone
 <!--

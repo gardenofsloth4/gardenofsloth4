@@ -1,5 +1,5 @@
 ![1000000983](https://github.com/user-attachments/assets/d932095f-3995-432b-b187-36fcf468263f)
-why is everyone so annoying these days.
+why is everyone so annoying these days.ANYWAYS,HII
 <!--
 **gardenofsloth4/gardenofsloth4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

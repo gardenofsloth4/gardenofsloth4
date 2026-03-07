@@ -2,3 +2,6 @@
 ~ why is everyone so weird these days..
 (im going to suck chance's nipples)
 ![1000000986](https://github.com/user-attachments/assets/b230a88f-a7c3-497e-a665-4f076f6dd9f8)
+
+![1000001028](https://github.com/user-attachments/assets/8fdd63b4-014a-4909-b251-48209eda6592)
+

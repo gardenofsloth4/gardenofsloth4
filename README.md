@@ -4,7 +4,11 @@
 ![1000000986](https://github.com/user-attachments/assets/b230a88f-a7c3-497e-a665-4f076f6dd9f8)
 
   
-![1000001022](https://github.com/user-attachments/assets/d026b427-7170-4dc5-a8d2-1ccc23a74f3a)
+
+
+
+![1000001023](https://github.com/user-attachments/assets/9c5c205c-c7cc-453c-923a-0e44c4fa9e2f)
+
 abt mee!!
 my name is azra but you can call me men
 16

@@ -1,4 +1,5 @@
-![1000000986](https://github.com/user-attachments/assets/f5d51b97-744a-45fa-9f6d-a21a45944325)
+![1000000985](https://github.com/user-attachments/assets/699141dd-abcd-428c-a84a-7d6930a74046)
 ~ why is everyone so weird these days..
 (im going to suck chance's nipples)
-![1000000985](https://github.com/user-attachments/assets/0a7de65b-dd76-488b-bae8-eea1db305e56)
+![1000000986](https://github.com/user-attachments/assets/f1502fbd-bb4c-4cc4-a426-c1c0aee0c221)
+

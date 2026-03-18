@@ -1,4 +1,4 @@
-too lazy to make a rentry so scroll down to see it ig
+too lazy to make a rentry so scroll down to see it ig blegh
 
 ![1000000985](https://github.com/user-attachments/assets/699141dd-abcd-428c-a84a-7d6930a74046)
 ⸺⠀ㅤ sugarㅤ𐚁̷ .ㅤ⠀⠀she ノ her⠀⠀◞ .

@@ -3,7 +3,7 @@ too lazy to make a rentry so scroll down to see it ig blegh
 ![1000000985](https://github.com/user-attachments/assets/699141dd-abcd-428c-a84a-7d6930a74046)
 ⸺⠀ㅤ![1000001109](https://github.com/user-attachments/assets/12e7f3f7-a1d0-403b-863d-df44af269893)
  sugarㅤ𐚁̷ .ㅤ⠀⠀she ノ her⠀⠀◞ .
-⠀♡⠀⠀,⠀warm-blooded !⠀⠀𐪞⠀⠀16⠀𑇛⠀⠀{ ![1000001110](https://github.com/user-attachments/assets/fb3aa3a8-7015-4385-88a5-70e5a2c10cfd)
+⠀♡⠀⠀,⠀extrovert !⠀⠀𐪞⠀⠀16⠀𑇛⠀⠀{ ![1000001110](https://github.com/user-attachments/assets/fb3aa3a8-7015-4385-88a5-70e5a2c10cfd)
  }⠀૮ ོ .• ༝ •. ོ𑁬
 ⠀⠀𐔌 、⠀female　︵︵　![1000001111](https://github.com/user-attachments/assets/8585ca43-b8d1-4b3f-bbf1-d01691f67f9b)
 ﹒⠀pansexual⠀⠀⠀月亮
